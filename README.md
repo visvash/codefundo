@@ -1,4 +1,4 @@
 # codefundo
 idea for project
-Fuck of
+there is no idea yet
 
